@@ -1,1 +1,1 @@
-![combination_logo](https://user-images.githubusercontent.com/57269348/210508501-ffd1cbd3-a32a-44a0-b69d-4d0642ff6bf2.png)
+![zooc_logo_full(dark) 1](https://github.com/TeamZOOC/.github/assets/73213437/3ce95616-6981-4779-9e86-d082c74459d5)
